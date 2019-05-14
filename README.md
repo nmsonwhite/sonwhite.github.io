@@ -1,5 +1,5 @@
 # Thông tin Clb
-Thành viên CLB WhiteX - Nơi hội tụ kiến thức !!
+CLB WhiteX - Nơi hội tụ kiến thức !!
 
 Facebook : https://www.facebook.com/clbwhitex/
 
